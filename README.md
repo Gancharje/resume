@@ -1,9 +1,9 @@
 # Pavel Akimov
 
 **Python Developer** with 6 years of commercial experience  
-📞 +7 (920) 547‑5001 | GMT+3  
+📞 [+7 (920) 547‑5001](https://wa.me/79205475001) | GMT+3  
 ✉️ pavel.akimov.developer@gmail.com  
-[LinkedIn](https://www.linkedin.com/in/your-profile) · [GitHub](https://github.com/your-profile)
+[LinkedIn](https://www.linkedin.com/in/pavel-akimov-191183248/) · [GitHub](https://github.com/Gancharje/resume)
 
 ---
 
